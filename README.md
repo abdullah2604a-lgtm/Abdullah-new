@@ -1,4 +1,4 @@
-# Hi, I'm Huzaifa 👋
+# Hi, I'm Abdullah 👋
 
 📍 **Karachi ↔ Pakistan** | 🚀 **Full Stack Developer**
 
